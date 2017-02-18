@@ -1,0 +1,1 @@
+# Serwer Aplikacji Mobilnej Maciejówki
